@@ -1,0 +1,2 @@
+# salamuharam
+Bucinya aku
